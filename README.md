@@ -1,2 +1,2 @@
-# writings
-&copy; all rights reserved
+# Writings
+&copy; All Rights Reserved
